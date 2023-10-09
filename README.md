@@ -35,3 +35,4 @@ https://www.notion.so/invite/40dadbb0866da951380de6919e416803476b652e
 https://ctm.electrikora.com/?prefix=pung888plus&action=register&refer_code=6iSxX7B4nM
 p888535849138
 (https://metamask.app.link/send/0x9b8D02D6f5779756cBbf690f4522dB4aA3b823De)
+https://github.com/password_reset
